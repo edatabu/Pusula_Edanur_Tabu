@@ -1,0 +1,1 @@
+# Pusula_Edanur_Tabu
